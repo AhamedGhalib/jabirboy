@@ -1,2 +1,2 @@
 # jabirboy
-Jabir is an Intellligent person
+Jabir is an Intellligent and A BAD person
